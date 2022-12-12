@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rae-t627
-- 👀 I’m interested in coding and making new things.
+- 👀 I’m interested in coding and exploring new things.
 - 🌱 I’m currently doing btech in electrical engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
